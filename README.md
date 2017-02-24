@@ -1,0 +1,2 @@
+# ObscurityPvP
+[SITE] ObscurityPvP
